@@ -106,7 +106,7 @@ Every thread, video, or article explaining Zama and Fully Homomorphic Encryption
 
 November 2025, Season 4 is live !
 
-1750 OG nft are available ans maybe the last ones. Don't miss it
+1750 OG nft are available and maybe the last ones. Don't miss it
 
 
 Zama keeps pushing the boundaries of confidential blockchain.
